@@ -1,6 +1,6 @@
 # UX Portfolio
 
-About me...
+Hi! I am Tanushree Trivedi, a senior at Chico State and majoring in Computer Science. 
 
 ## UX Team Project
 

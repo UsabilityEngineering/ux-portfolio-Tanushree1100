@@ -1,5 +1,5 @@
 # Music Controls on Headphones
-As a user of the[Crusher Evo Sensory Bass Headphones with Personal Sound](https://www.skullcandy.com/crusher-evo-wireless-headphones/), I have had a great listening experience with these headphones, particularly for bass-heavy music. One of the standout features of these headphones is the straightforward and simple button layout, making it easy to operate for both novice and experienced users.
+As a user of the [Crusher Evo Sensory Bass Headphones with Personal Sound](https://www.skullcandy.com/crusher-evo-wireless-headphones/), I have had a great listening experience with these headphones, particularly for bass-heavy music. One of the standout features of these headphones is the straightforward and simple button layout, making it easy to operate for both novice and experienced users.
 
 The design of the headphones has been focused on flexibility and efficiency, with the plastic body of the headphones being lightweight and comfortable for extended use. The buttons are easy to access and use, and there are shortcuts available to improve the interaction for experienced users without sacrificing simplicity for those who are less familiar with the headphones.
 

@@ -9,4 +9,5 @@ Coming soon.
 ## UX Journal
 
 [Read about my experience with Music Controls on Headphones](j01/)
+
 [Read about my experience with Music Controls on Headphones - revised](j02/)
